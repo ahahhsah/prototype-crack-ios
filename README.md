@@ -1,1 +1,2 @@
-# Angel Aura Amethyst (iOS)
+# Angel Aura Amethyst (iOS) CRACK
+WORK IN PROGRESS
